@@ -1,5 +1,6 @@
 <html>
   <body>
-    <img src="![project-sekai-proseka](https://github.com/user-attachments/assets/e8aa9bcd-8833-45b5-9a6d-450b5ab6d5b6)" widh=300>
+    <img width="156" alt="Screenshot 2025-05-11 002354" src="https://github.com/user-attachments/assets/7e12bcf0-d2b1-4c25-9396-02a727a282c2" />
+
   </body>
 </html>
