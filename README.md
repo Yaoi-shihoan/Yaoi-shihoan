@@ -1,7 +1,3 @@
-<html>
-  <body>
-    <div id="header" align="center"
+<div id="header" align="center"
       <img src=https://tenor.com/voNXT51QjCb.gif width=300>
-    </div>
-  </body>
-</html>
+</div>
