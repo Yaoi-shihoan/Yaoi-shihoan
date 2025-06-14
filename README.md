@@ -1,7 +1,7 @@
 ![Bark](https://komarev.com/ghpvc/?username=Yaoi-shihoan&color=BBDD22)
 <br>
-<p> random pic of my oomf ↓(yes ur hot) </p>
-<img width="400" style="align:center" alt="Screenshot 2025-04-26 145636" src="https://github.com/user-attachments/assets/bd8e8161-458d-4236-a360-1b7ef33bdab4" />
+<p> us ❤️ ↓ </p>
+<img width="467" alt="Screenshot 2025-06-15 025630" src="https://github.com/user-attachments/assets/84d7fc6c-d6d1-422c-a907-f337f4b0e09b" />
 <br>
 <p> my ↓ strwpage & ↓ pronoun </p>
 <a href="https://kaisvin.straw.page/">Strawpage</a> <a href="https://en.pronouns.page/@Kaisvin_">Enpronouns</a>
