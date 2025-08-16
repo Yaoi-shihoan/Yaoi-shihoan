@@ -1,7 +1,7 @@
-![Bark](https://komarev.com/ghpvc/?username=Yaoi-shihoan&color=BBDD22)
+![Bark](https://komarev.com/ghpvc/?username=Yaoi-shihoan&color=4455DD)
 <br>
-<p> my wife❤️ ↓ </p>
-<img width="683" alt="image" src="https://github.com/user-attachments/assets/c5be9bd9-8e3e-45cc-a466-b5bfae29017b" />
+<p> cuties❤️ ↓ </p>
+<img src="https://c.tenor.com/aSz9eOzcxewAAAAC/tenor.gif" alt="awh leoni in train" style="width:20;height:15;" />
 
 <br>
 <p> my ↓ strwpage & ↓ pronoun </p>
